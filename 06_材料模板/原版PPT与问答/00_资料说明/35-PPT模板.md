@@ -1,0 +1,64 @@
+# PPT模板
+[附件：中山大学-保研ppt模板.pptx](../02_PPT%E6%A8%A1%E6%9D%BF/%E4%B8%AD%E5%B1%B1%E5%A4%A7%E5%AD%A6-%E4%BF%9D%E7%A0%94ppt%E6%A8%A1%E6%9D%BF.pptx) (9.2 MB)
+
+[附件：L011-全英文-保研ppt模板.pptx](../02_PPT%E6%A8%A1%E6%9D%BF/L011-%E5%85%A8%E8%8B%B1%E6%96%87-%E4%BF%9D%E7%A0%94ppt%E6%A8%A1%E6%9D%BF.pptx) (7.9 MB)
+
+[附件：L010-保研ppt模板.pptx](../02_PPT%E6%A8%A1%E6%9D%BF/L010-%E4%BF%9D%E7%A0%94ppt%E6%A8%A1%E6%9D%BF.pptx) (2.9 MB)
+
+[附件：L001-红色-保研ppt模板-左侧导航栏.pptx](../02_PPT%E6%A8%A1%E6%9D%BF/L001-%E7%BA%A2%E8%89%B2-%E4%BF%9D%E7%A0%94ppt%E6%A8%A1%E6%9D%BF-%E5%B7%A6%E4%BE%A7%E5%AF%BC%E8%88%AA%E6%A0%8F.pptx) (28.3 MB)
+
+[附件：L001-蓝色-无校徽-保研ppt模板.pptx](../02_PPT%E6%A8%A1%E6%9D%BF/L001-%E8%93%9D%E8%89%B2-%E6%97%A0%E6%A0%A1%E5%BE%BD-%E4%BF%9D%E7%A0%94ppt%E6%A8%A1%E6%9D%BF.pptx) (28.1 MB)
+
+[附件：L001-红色-无校徽版本-保研ppt模板-左侧导航栏.pptx](../02_PPT%E6%A8%A1%E6%9D%BF/L001-%E7%BA%A2%E8%89%B2-%E6%97%A0%E6%A0%A1%E5%BE%BD%E7%89%88%E6%9C%AC-%E4%BF%9D%E7%A0%94ppt%E6%A8%A1%E6%9D%BF-%E5%B7%A6%E4%BE%A7%E5%AF%BC%E8%88%AA%E6%A0%8F.pptx) (28.1 MB)
+
+[附件：L001-绿色-无校徽-保研ppt模板.pptx](../02_PPT%E6%A8%A1%E6%9D%BF/L001-%E7%BB%BF%E8%89%B2-%E6%97%A0%E6%A0%A1%E5%BE%BD-%E4%BF%9D%E7%A0%94ppt%E6%A8%A1%E6%9D%BF.pptx) (28.1 MB)
+
+[附件：L001-绿色-保研ppt模板.pptx](../02_PPT%E6%A8%A1%E6%9D%BF/L001-%E7%BB%BF%E8%89%B2-%E4%BF%9D%E7%A0%94ppt%E6%A8%A1%E6%9D%BF.pptx) (28.5 MB)
+
+[附件：L001-蓝色-保研ppt模板.pptx](../02_PPT%E6%A8%A1%E6%9D%BF/L001-%E8%93%9D%E8%89%B2-%E4%BF%9D%E7%A0%94ppt%E6%A8%A1%E6%9D%BF.pptx) (28.6 MB)
+
+[附件：L006-保研ppt模板.pptx](../02_PPT%E6%A8%A1%E6%9D%BF/L006-%E4%BF%9D%E7%A0%94ppt%E6%A8%A1%E6%9D%BF.pptx) (3.5 MB)
+
+[附件：L007-保研ppt模板.pptx](../02_PPT%E6%A8%A1%E6%9D%BF/L007-%E4%BF%9D%E7%A0%94ppt%E6%A8%A1%E6%9D%BF.pptx) (860 kB)
+
+[附件：L002-大气红-保研ppt模板-笔记同款.pptx](../02_PPT%E6%A8%A1%E6%9D%BF/L002-%E5%A4%A7%E6%B0%94%E7%BA%A2-%E4%BF%9D%E7%A0%94ppt%E6%A8%A1%E6%9D%BF-%E7%AC%94%E8%AE%B0%E5%90%8C%E6%AC%BE.pptx) (21.7 MB)
+
+[附件：L005-简约学术风-保研ppt模板.pptx](../02_PPT%E6%A8%A1%E6%9D%BF/L005-%E7%AE%80%E7%BA%A6%E5%AD%A6%E6%9C%AF%E9%A3%8E-%E4%BF%9D%E7%A0%94ppt%E6%A8%A1%E6%9D%BF.pptx) (959 kB)
+
+[附件：L002-大气红-无校徽-保研ppt模板.pptx](../02_PPT%E6%A8%A1%E6%9D%BF/L002-%E5%A4%A7%E6%B0%94%E7%BA%A2-%E6%97%A0%E6%A0%A1%E5%BE%BD-%E4%BF%9D%E7%A0%94ppt%E6%A8%A1%E6%9D%BF.pptx) (21.5 MB)
+
+[附件：保研面试PPT-模板2.pptx](../02_PPT%E6%A8%A1%E6%9D%BF/%E4%BF%9D%E7%A0%94%E9%9D%A2%E8%AF%95PPT-%E6%A8%A1%E6%9D%BF2.pptx) (1.9 MB)
+
+[附件：保研面试PPT-模板3.pptx](../02_PPT%E6%A8%A1%E6%9D%BF/%E4%BF%9D%E7%A0%94%E9%9D%A2%E8%AF%95PPT-%E6%A8%A1%E6%9D%BF3.pptx) (950 kB)
+
+[附件：保研面试ppt-模板6.pptx](../02_PPT%E6%A8%A1%E6%9D%BF/%E4%BF%9D%E7%A0%94%E9%9D%A2%E8%AF%95ppt-%E6%A8%A1%E6%9D%BF6.pptx) (1.4 MB)
+
+[附件：模板3.pptx](../02_PPT%E6%A8%A1%E6%9D%BF/%E6%A8%A1%E6%9D%BF3.pptx) (2.4 MB)
+
+[附件：模板4.pptx](../02_PPT%E6%A8%A1%E6%9D%BF/%E6%A8%A1%E6%9D%BF4.pptx) (1.7 MB)
+
+[附件：模板5.pptx](../02_PPT%E6%A8%A1%E6%9D%BF/%E6%A8%A1%E6%9D%BF5.pptx) (1.3 MB)
+
+[附件：模板6.pptx](https://github.com/ouyangyipeng/SYSU-CS-baoyan/releases/download/v2026.09/ppt-template-6.pptx) (56.2 MB)
+
+[附件：模板7.pptx](https://github.com/ouyangyipeng/SYSU-CS-baoyan/releases/download/v2026.09/ppt-template-7.pptx) (132.4 MB)
+
+[附件：【赠】大学校徽png免抠图.pptx](../02_PPT%E6%A8%A1%E6%9D%BF/%E3%80%90%E8%B5%A0%E3%80%91%E5%A4%A7%E5%AD%A6%E6%A0%A1%E5%BE%BDpng%E5%85%8D%E6%8A%A0%E5%9B%BE.pptx) (1.2 MB)
+
+[附件：PPT讲解文案参考1.docx](../01_%E9%9D%A2%E8%AF%95%E9%97%AE%E7%AD%94%E4%B8%8E%E8%AE%B2%E7%A8%BF/PPT%E8%AE%B2%E8%A7%A3%E6%96%87%E6%A1%88%E5%8F%82%E8%80%831.docx) (18 kB)
+
+[附件：PPT讲解文案参考2.docx](../01_%E9%9D%A2%E8%AF%95%E9%97%AE%E7%AD%94%E4%B8%8E%E8%AE%B2%E7%A8%BF/PPT%E8%AE%B2%E8%A7%A3%E6%96%87%E6%A1%88%E5%8F%82%E8%80%832.docx) (19 kB)
+
+[附件：保研面试常见问题回答技巧（万能模板）.pdf](../01_%E9%9D%A2%E8%AF%95%E9%97%AE%E7%AD%94%E4%B8%8E%E8%AE%B2%E7%A8%BF/%E4%BF%9D%E7%A0%94%E9%9D%A2%E8%AF%95%E5%B8%B8%E8%A7%81%E9%97%AE%E9%A2%98%E5%9B%9E%E7%AD%94%E6%8A%80%E5%B7%A7%EF%BC%88%E4%B8%87%E8%83%BD%E6%A8%A1%E6%9D%BF%EF%BC%89.pdf) (836 kB)
+
+[附件：保研面试问题合集（附参考答案）百问百答.pdf](../01_%E9%9D%A2%E8%AF%95%E9%97%AE%E7%AD%94%E4%B8%8E%E8%AE%B2%E7%A8%BF/%E4%BF%9D%E7%A0%94%E9%9D%A2%E8%AF%95%E9%97%AE%E9%A2%98%E5%90%88%E9%9B%86%EF%BC%88%E9%99%84%E5%8F%82%E8%80%83%E7%AD%94%E6%A1%88%EF%BC%89%E7%99%BE%E9%97%AE%E7%99%BE%E7%AD%94.pdf) (929 kB)
+
+[附件：刁钻问题面试回答技巧和模板.pdf](../01_%E9%9D%A2%E8%AF%95%E9%97%AE%E7%AD%94%E4%B8%8E%E8%AE%B2%E7%A8%BF/%E5%88%81%E9%92%BB%E9%97%AE%E9%A2%98%E9%9D%A2%E8%AF%95%E5%9B%9E%E7%AD%94%E6%8A%80%E5%B7%A7%E5%92%8C%E6%A8%A1%E6%9D%BF.pdf) (145 kB)
+
+[附件：规划问题面试回答技巧和模板.pdf](../01_%E9%9D%A2%E8%AF%95%E9%97%AE%E7%AD%94%E4%B8%8E%E8%AE%B2%E7%A8%BF/%E8%A7%84%E5%88%92%E9%97%AE%E9%A2%98%E9%9D%A2%E8%AF%95%E5%9B%9E%E7%AD%94%E6%8A%80%E5%B7%A7%E5%92%8C%E6%A8%A1%E6%9D%BF.pdf) (252 kB)
+
+[附件：简历面试问题-测试.pdf](../01_%E9%9D%A2%E8%AF%95%E9%97%AE%E7%AD%94%E4%B8%8E%E8%AE%B2%E7%A8%BF/%E7%AE%80%E5%8E%86%E9%9D%A2%E8%AF%95%E9%97%AE%E9%A2%98-%E6%B5%8B%E8%AF%95.pdf) (175 kB)
+
+[附件：行为面试问题-测试.pdf](../01_%E9%9D%A2%E8%AF%95%E9%97%AE%E7%AD%94%E4%B8%8E%E8%AE%B2%E7%A8%BF/%E8%A1%8C%E4%B8%BA%E9%9D%A2%E8%AF%95%E9%97%AE%E9%A2%98-%E6%B5%8B%E8%AF%95.pdf) (213 kB)
+
+[附件：压力面试问题-测试.pdf](../01_%E9%9D%A2%E8%AF%95%E9%97%AE%E7%AD%94%E4%B8%8E%E8%AE%B2%E7%A8%BF/%E5%8E%8B%E5%8A%9B%E9%9D%A2%E8%AF%95%E9%97%AE%E9%A2%98-%E6%B5%8B%E8%AF%95.pdf) (255 kB)

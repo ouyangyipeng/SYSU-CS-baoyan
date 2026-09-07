@@ -1,0 +1,9 @@
+.DS_Store
+.obsidian/
+.env
+.env.*
+*.pem
+*.key
+~$*
+tmp/
+02_私人材料/
